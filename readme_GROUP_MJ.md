@@ -1,14 +1,9 @@
+Hola bienvenida a este equipazo
+
+soy el coord
+CHAUUUUU
 
 
-
-
-
-
-
-
-
-
-
-
-
-hasta aqui
+YA TENGO SUEÑOOOO
+ya es tardeee
+mmmmmmmmmmmmmmaaaaaaaaaafeer
