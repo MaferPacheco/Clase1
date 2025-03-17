@@ -1,14 +1,14 @@
 Hola bienvenida a este equipazo
 
-soy el coordinador
-CHAUUUUU
-
 colocar algo en este espacio por ordenamiento
 d
 d
 d
 d
 d
+
+soy el coordinador
+CHAUUUUU
 
 YA TENGO SUEÑOOOO
 ya es tardeee
