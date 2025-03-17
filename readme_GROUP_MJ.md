@@ -1,6 +1,6 @@
 Hola bienvenida a este equipazo
 
-soy el coord
+soy el coordinador
 CHAUUUUU
 
 
