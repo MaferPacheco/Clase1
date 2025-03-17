@@ -1,2 +1,1 @@
-ya 
-no quiero hacer nada 
+Esta es mi primera clase
