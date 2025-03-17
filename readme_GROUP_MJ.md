@@ -3,6 +3,12 @@ Hola bienvenida a este equipazo
 soy el coordinador
 CHAUUUUU
 
+colocar algo en este espacio por ordenamiento
+d
+d
+d
+d
+d
 
 YA TENGO SUEÑOOOO
 ya es tardeee
